@@ -5,7 +5,7 @@
 Mi nombre es Viviana Diaz
 Estudiante de PFLC
 17 años
-
+Me gusta dibujar y casi todo lo que tenga que ver con el medio artístico
 
 |             | LUNES                            | MARTES                           | MIERCOLES             | JUEVES                           | VIERNES               |
 |-------------|----------------------------------|----------------------------------|-----------------------|----------------------------------|-----------------------|
