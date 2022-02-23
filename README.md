@@ -33,8 +33,3 @@
 | 12:00-12:50 | Matemáticas IV                   | Ingles IV                        | Comunidades virtuales | Fisica II                        |                       |
 | 12:55-13:45 |                                  | Comunidades virtuales            | Comunidades virtuales | Matemáticas IV                   |                       |
 
-
-
-
-💻🖌**A continuación un par de  mis creaciones**🖌💻
-![](https://github.com/vilidivi/VivianaDiaz/blob/main/brunhilde.png)
