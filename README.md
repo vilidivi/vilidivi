@@ -5,7 +5,7 @@
 **Hola:D**✨
 
 
-*✨Bienvenido a mi perfil UwU✨
+-✨Bienvenido a mi perfil UwU✨
 ✨Mi nombre es Viviana Diaz
 🎒📖Soy estudiante de PFLC
 💻Estoy en la capacitación de TICS
