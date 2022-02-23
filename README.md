@@ -2,7 +2,7 @@
 
 ![](https://github.com/vilidivi/VivianaDiaz/blob/main/cooltext405051993789039.png)
 
-Hola:D✨
+**Hola:D**✨
 
 *✨Bienvenido a mi perfil UwU✨
 *✨Mi nombre es Viviana Diaz
