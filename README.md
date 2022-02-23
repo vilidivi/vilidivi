@@ -5,12 +5,22 @@
 **Hola:D**✨
 
 
--✨Bienvenido a mi perfil UwU✨
-✨Mi nombre es Viviana Diaz
-🎒📖Soy estudiante de PFLC
-💻Estoy en la capacitación de TICS
-👩‍🎨17 años 
-🎨Me gusta dibujar y casi todo lo que tenga que ver con el medio artístico🎬
++✨Bienvenido a mi perfil UwU✨
+
++✨Mi nombre es Viviana Diaz
+
++🎒📖Soy estudiante de PFLC
+
++💻Estoy en la capacitación de TICS
+
++👩‍🎨17 años 
+
++🎨Me gusta dibujar y casi todo lo que tenga que ver con el medio artístico🎬
+
+
+
+
+✏📅**HORARIO**📅✏
 
 |             | LUNES                            | MARTES                           | MIERCOLES             | JUEVES                           | VIERNES               |
 |-------------|----------------------------------|----------------------------------|-----------------------|----------------------------------|-----------------------|
