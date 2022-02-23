@@ -1,5 +1,5 @@
 # Iovilidivi
-![](https://github.com/vilidivi/Iovilidivi/blob/main/cooltext404731306974468.png)
+
 
 
 
